@@ -1,5 +1,5 @@
 ### Hi there 👋
-Hello! I'm Md Sagor Ahmed, a dynamic and results-oriented Digital Marketing Professional with a deep passion for connecting brands with their target audiences in the digital world. With a Bachelor’s degree in Marketing and 5 years of hands-on experience in digital marketing, I have developed a robust skill set that combines technical knowledge with creativity and strategic thinking.
+ I'm Md Sagor Ahmed, a dynamic and results-oriented Digital Marketing Professional with a deep passion for connecting brands with their target audiences in the digital world. With a Bachelor’s degree in Marketing and 5 years of hands-on experience in digital marketing, I have developed a robust skill set that combines technical knowledge with creativity and strategic thinking.
 
 My Expertise:
 💥Search Engine Optimization (SEO): Proficient in crafting SEO strategies that enhance online visibility and organic reach. Experienced in keyword research, on-page optimization, and building effective backlink profiles.
